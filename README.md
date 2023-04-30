@@ -1,1 +1,1 @@
-[# https://sterbyy.github.io/startgame.html](https://sterbyy.github.io/gamestart.html)
+[# Перейти на сайт!!!](https://sterbyy.github.io/gamestart.html)
