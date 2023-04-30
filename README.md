@@ -1,1 +1,1 @@
-# sterbyy.github.io
+# sterbyy.github.io/startgame.html
